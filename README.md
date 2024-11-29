@@ -20,7 +20,6 @@
 
 ## 🌐 Connect With Me
 - 📫 How to reach me: rafikcladius69@gmail.com
-- 💼 LinkedIn: https://linkedin.com/in/coenrad
 - 📍 Location: Jakarta City, Indonesia
 
 🖥️🎨 Let's connect!
