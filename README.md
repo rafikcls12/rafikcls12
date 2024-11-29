@@ -2,7 +2,7 @@
 
 ## 🚀 About Me
 - 💻 I'm a Student Computer Engineering
-- 
+  
 ## 🛠️ Tech Stack
 
 ### Languages & Tools
